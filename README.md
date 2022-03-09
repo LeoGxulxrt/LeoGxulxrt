@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LeoGxulxrt
+- 👋 Hi, I’m Leonardo
 - 👀 I’m interested in pensamento computacional
 - 🌱 I’m currently learning in 1° B Gabriela Mistral 
 - 
